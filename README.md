@@ -1,3 +1,2 @@
 # cohort4aregreat
-
-Because they are really cool!!
+Because they suck!
